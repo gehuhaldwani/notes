@@ -1,3 +1,3 @@
 # Notes
 
-https://bit.ly/btechcsenotes
+old link: https://bit.ly/btechcsenotes
